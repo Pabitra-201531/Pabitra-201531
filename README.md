@@ -1,6 +1,6 @@
 👋 Hi, I’m Pabitra Ojha (@Pabitra-201531)!
 👀 I’m passionate about technology, education, and personal growth.
-🌱 Currently, I’m exploring new skills like : cybersecurity, advanced IT, creative writing.
+🌱 Currently, I’m exploring new skills like : cybersecurity, advanced IT, creative writing, Data Analytics, Web development etc.
 💞️ I love collaborating on projects related to education, skill development, and community empowerment.
 📫 Feel free to reach out to me at:  ojhapabitra796@gmail.com or LinkedIn profile].
 😄 Pronouns:  He/Him
